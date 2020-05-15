@@ -1,1 +1,18 @@
 # badass-project
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+badass! woohoo!
